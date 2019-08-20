@@ -1,4 +1,4 @@
-🔥👛Burner Wallet to move xDai quickly in a web browser. Sweep to cold storage when you get home. 🏠👨🏻‍🚒 [https://xdai.io](https://xdai.io)
+🔥👛TT Burner Wallet to move xDai quickly in a web browser. Sweep to cold storage when you get home. 🏠👨🏻‍🚒 [https://tt.burnerwallet.io/](https://tt.burnerwallet.io/)
 
 Read the full article here:
 [Ethereum in Emerging Economies - Mass adoption will start where decentralization is necessary](https://medium.com/@austin_48503/ethereum-in-emerging-economies-b235f8dac2f2)
